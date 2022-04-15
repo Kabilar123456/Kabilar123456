@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kabilar123456
 - 👀 I’m interested in hacking
-- 🌱 I’m currently learning 11th
+- 🌱 I’m currently studing 11th
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ...
 
